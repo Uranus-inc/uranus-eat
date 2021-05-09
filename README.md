@@ -1,2 +1,2 @@
-# Uranus to the with Ueat(YouEat)
+# Uranus to the moon with Ueat(YouEat)
 ##what a great idea
